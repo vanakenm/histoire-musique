@@ -32,6 +32,10 @@ On écoute - [Nuper Rosarum Flores](https://www.youtube.com/watch?v=hGW2HL35kqY)
 - Petites dissonnances, tout de suite résolues.
 - Passage de 4 à 2 voix, amène de variations et reposant pour les oreilles
 
+Usage d'un ["serpent"](https://fr.wikipedia.org/wiki/Serpent_(musique)) (instrument) pour "soutenir" les voix.
+
+Une voix instrumentale qui vient "doubler" les voix, mais pas de partitions, pas fixé.
+
 ## Géographie
 
 Activité se déplace à des endroits épargnés par la guerre - Flandre, Bourgogne.
