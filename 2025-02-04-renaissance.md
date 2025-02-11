@@ -69,6 +69,16 @@ Niveau rythmique: grande régularité rythmique (typique des rondeau)
 &#9835; On écoute - ["Adieu mamour adieu ma joie"](https://www.youtube.com/watch?v=1Ocfd6KQzAo)
 
 
+A écrit plusieurs types de messes, unitaires ou non. Va utiliser des éléments profanes dans ses messes comme par exemple dans ["Missa se la face ay pale"](https://imslp.org/wiki/Missa_Se_la_face_ay_pale_(Dufay,_Guillaume)) (chanson plus haut "recyclée" dans une messe)
+
+&#9835; On écoute - Kyrié du ["Messe l'homme armé](https://www.youtube.com/watch?v=ibSeyIbNGYA) 
+
+- On entend la musique qui rentre en décalé par rapport aux voix
+- Petit passage à deux voix au milieu d'une messe à trois voix
+- Imitation
+- Plus d'activité dans chaque voix (on est loin du grégorien, vivant)
+- Mais toujours homogène, jamais brusque
+
 ## Géographie
 
 Activité se déplace à des endroits épargnés par la guerre - Flandre, Bourgogne.
