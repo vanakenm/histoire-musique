@@ -31,7 +31,7 @@ Au sens large:
 
 Ca devient compliqué avec les périodes - quand on classe
 
-- On arrive jusqu'à [Xenakis]is(https://fr.wikipedia.org/wiki/Iannis_Xenakis) - oeuvres de musique comptemporaine
+- On arrive jusqu'à [Xenakis](https://fr.wikipedia.org/wiki/Iannis_Xenakis) - oeuvres de musique comptemporaine
 - Deviens synonyme de "musique écrite" (par opposition à du jazz par exemple)
 
 En partie Occidentaux centré - peut être assigné à d'autres cultures ("Musique Classique Arabe") - mais a nouveau une sorte d'élitisme.
